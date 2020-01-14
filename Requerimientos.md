@@ -10,3 +10,4 @@ Adicionalmente, con base en los estatutos de cada asociación pueden aparecer mu
 
 **En específico**
 
+Las específicas tienen que ver con una factura como la que se muestra <a href="https://drive.google.com/open?id=1C5LmCe-xzokEpFOOg9TIhSBY06uC9nmj">aquí</a>.
